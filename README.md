@@ -1,4 +1,3 @@
-##Qosmurat Samat
 # 💫 About Me:
 👨🏻‍💻 Software engineering student of Astana IT University<br>👨 An active and positive man who loves his job
 
